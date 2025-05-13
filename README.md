@@ -15,6 +15,12 @@
 <p align="center">$${\color{#7D434A}𝔄}$$ $${\color{#7D434A}𝔴}$$ $${\color{#7D434A}𝔞}$$ $${\color{#7D434A}𝔶}$$  ›››  Semi-AFK $${\color{#999999}/}$$ Replies  might  be  slow</p>
 
 <p align="center">$${\color{#7D434A}𝔅}$$ $${\color{#7D434A}𝔲}$$ $${\color{#7D434A}𝔰}$$ $${\color{#7D434A}𝔶}$$  ›››  AFK  $${\color{#999999}/}$$ Playing  a  game $${\color{#999999}/}$$ Drawing 
+
+<p align="center"><img height="55" width="99" src="https://i.postimg.cc/D4gfhz8W/MAD-GOD.png"/>    <img height="55" width="99" src="https://i.postimg.cc/pyYKrYjj/BLOODBNRE.png"/>    <img height="55" width="99" src="https://i.postimg.cc/BtGxJwjs/OUTLAST.png"/></p> 
   
 <p align="center"><img height="185" width="579" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
+
+
+
+
 
