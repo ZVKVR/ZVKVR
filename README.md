@@ -1,6 +1,6 @@
 
 <p align="center"><img height="224" width="718" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
-<p align="center">⌞   › › ›› $${\color{#7D434A}Z A K}$$  ‹‹ ‹ ‹  ⌝</p>
+<p align="center">⌞   › › ›› $${\color{#7D434A}Z}$$ $${\color{#7D434A}A}$$ $${\color{#7D434A}K}$$  ‹‹ ‹ ‹  ⌝</p>
 
 <p align="center">[  He/It // +20 // ♏︎ // INFJ(P) // 5w4  ]</p>
 
