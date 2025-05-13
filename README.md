@@ -2,7 +2,7 @@
 <p align="center"><img height="224" width="718" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
 <p align="center">⌞   › › ›› $${\color{#7D434A}𝚉}$$ $${\color{#7D434A}𝙰}$$ $${\color{#7D434A}𝙺}$$  ‹‹ ‹ ‹  ⌝</p>
 
-<p align="center">[  He/It // +20 // ♏︎ // INFJ(P) // 5w4  ]</p>
+<p align="center">[  He/It  $${\color{#999999}/}$$  +20 $${\color{#999999}/}$$ ♏︎ $${\color{#999999}/}$$ INFJ  $${\color{#999999}/}$$  5w4  ]</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -10,11 +10,11 @@
   </a>
 </p>
 
-<p align="center">$${\color{#7D434A}𝔒}$$ $${\color{#7D434A}𝔫}$$ $${\color{#7D434A}𝔩}$$ $${\color{#7D434A}𝔦}$$ $${\color{#7D434A}𝔫}$$ $${\color{#7D434A}𝔢}$$    ›››     Fully      available     for      chatting</p>
+<p align="center">$${\color{#7D434A}𝔒}$$ $${\color{#7D434A}𝔫}$$ $${\color{#7D434A}𝔩}$$ $${\color{#7D434A}𝔦}$$ $${\color{#7D434A}𝔫}$$ $${\color{#7D434A}𝔢}$$  ›››  Fully   available   for   chatting</p>
 
-<p align="center">$${\color{#7D434A}𝔄}$$ $${\color{#7D434A}𝔴}$$ $${\color{#7D434A}𝔞}$$ $${\color{#7D434A}𝔶}$$ ›››    Semi-AFK    /  Replies   might   be   slow</p>
+<p align="center">$${\color{#7D434A}𝔄}$$ $${\color{#7D434A}𝔴}$$ $${\color{#7D434A}𝔞}$$ $${\color{#7D434A}𝔶}$$  ›››  Semi-AFK $${\color{#999999}/}$$ Replies  might  be  slow</p>
 
-<p align="center">$${\color{#7D434A}𝔅}$$ $${\color{#7D434A}𝔲}$$ $${\color{#7D434A}𝔰}$$ $${\color{#7D434A}𝔶}$$ ›››  AFK  /   Playing  a  game   /   Drawing
+<p align="center">$${\color{#7D434A}𝔅}$$ $${\color{#7D434A}𝔲}$$ $${\color{#7D434A}𝔰}$$ $${\color{#7D434A}𝔶}$$  ›››  AFK  $${\color{#999999}/}$$ Playing  a  game $${\color{#999999}/}$$ Drawing 
   
 <p align="center"><img height="224" width="718" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
 
