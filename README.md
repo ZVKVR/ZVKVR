@@ -1,8 +1,8 @@
 
-<p align="center"><img height="224" width="718" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
-<p align="center">⌞   › › ›› $${\color{#7D434A}𝚉}$$ $${\color{#7D434A}𝙰}$$ $${\color{#7D434A}𝙺}$$  ‹‹ ‹ ‹  ⌝</p>
+<p align="center"><img height="185" width="579" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
+<p align="center">⌞   › › ››  $${\color{#7D434A}𝚉}$$ $${\color{#7D434A}𝙰}$$ $${\color{#7D434A}𝙺}$$   ‹‹ ‹ ‹  ⌝</p>
 
-<p align="center">[  He/It  $${\color{#999999}/}$$  +20 $${\color{#999999}/}$$ ♏︎ $${\color{#999999}/}$$ INFJ  $${\color{#999999}/}$$  5w4  ]</p>
+<p align="center">[  He/It  $${\color{#999999}/}$$  +20  $${\color{#999999}/}$$  ♏︎  $${\color{#999999}/}$$  INFJ  $${\color{#999999}/}$$  5w4  ]</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -16,5 +16,5 @@
 
 <p align="center">$${\color{#7D434A}𝔅}$$ $${\color{#7D434A}𝔲}$$ $${\color{#7D434A}𝔰}$$ $${\color{#7D434A}𝔶}$$  ›››  AFK  $${\color{#999999}/}$$ Playing  a  game $${\color{#999999}/}$$ Drawing 
   
-<p align="center"><img height="224" width="718" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
+<p align="center"><img height="185" width="579" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
 
