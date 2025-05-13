@@ -1,6 +1,6 @@
 
 <p align="center"><img height="224" width="718" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
-<p align="center">⌞   › › ›› $${ \space \color{#7D434A}Z A K \space }$$  ‹‹ ‹ ‹  ⌝</p>
+<p align="center">⌞   › › ›› $${\color{#7D434A}Z A K}$$  ‹‹ ‹ ‹  ⌝</p>
 
 <p align="center">[  He/It // +20 // ♏︎ // INFJ(P) // 5w4  ]</p>
 
@@ -10,10 +10,10 @@
   </a>
 </p>
 
-<p align="center">$${ \space \color{#7D434A}O n l i n e \space }$$   ›››      Fully        available      for       chatting</p>
+<p align="center">$${\color{#7D434A}O n l i n e }$$   ›››     Fully      available     for      chatting</p>
 
-<p align="center">$${ \space \color{#7D434A}A w a y \space }$$  ›››  Semi-AFK  /  Replies   might   be   slow</p>
+<p align="center">$${\color{#7D434A}A w a y}$$ ›››    Semi-AFK    /  Replies   might   be   slow</p>
 
-<p align="center">$${ \space \color{#7D434A}B u s y \space }$$›››  AFK  /  Playing   a   game  /   Drawing
+<p align="center">$${\color{#7D434A}B u s y }$$ ›››  AFK  /   Playing  a  game   /   Drawing
   
 <p align="center"><img height="224" width="718" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
