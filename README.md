@@ -1,5 +1,5 @@
 
-<p align="center"><img height="185" width="579" src="https://i.postimg.cc/DzXq8NDt/aaegzzrhzrh.png"/></p>
+<p align="center"><img height="185" width="579" src="https://i.postimg.cc/yYsXQFGV/aaegzzrhzrhgegrzgh.png"/></p>
 <p align="center">⌞   › › ››  $${\color{#7D434A}𝚉}$$ $${\color{#7D434A}𝙰}$$ $${\color{#7D434A}𝙺}$$   ‹‹ ‹ ‹  ⌝</p>
 
 <p align="center">[  He/It  $${\color{#999999}/}$$  +20  $${\color{#999999}/}$$  ♏︎  $${\color{#999999}/}$$  INFJ  $${\color{#999999}/}$$  5w4  ]</p>
