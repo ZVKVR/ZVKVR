@@ -18,7 +18,7 @@
 
 <p align="center"><img height="55" width="99" src="https://i.postimg.cc/D4gfhz8W/MAD-GOD.png"/>    <img height="55" width="99" src="https://i.postimg.cc/pyYKrYjj/BLOODBNRE.png"/>    <img height="55" width="99" src="https://i.postimg.cc/BtGxJwjs/OUTLAST.png"/></p> 
   
-<p align="center"><img height="185" width="579" src="https://i.postimg.cc/TPfRDLHf/ZRHZRHZRHZRH.png"/></p> 
+<p align="center"><img height="185" width="579" src="https://i.postimg.cc/sX4dk9wy/4584.png"/></p> 
 
 
 
