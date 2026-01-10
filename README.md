@@ -4,11 +4,7 @@
 
 <p align="center">[  He/It    /    +20    /    ♏︎    /    INFJ    /   5w4  ]</p>
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=21sjb5sr5qmwew2d3uq4ijepa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=7d434a&bar_color_cover=false" alt="spotify-github-profile">
-  </a>
-</p>
+
 
 <p align="center"> 𝔒   𝔫   𝔩   𝔦   𝔫   𝔢   ›››  Fully   available   for   chatting</p>
 
